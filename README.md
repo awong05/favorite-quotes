@@ -13,3 +13,9 @@
 <p align="right">
   <em>Aomame, Chapter 15, <strong>FIRMLY, LIKE ATTACHING AN ANCHOR TO A BALLOON</strong></em>
 </p>
+
+> "The point of its being a world that isn't here is in being able to rewrite the past of the world that is here."
+
+<p align="right">
+  <em>Tengo, Chapter 24, <strong>WHAT'S THE POINT OF ITS BEING A WORLD THAT ISN'T HERE?</strong></em>
+</p>
