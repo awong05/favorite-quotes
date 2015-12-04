@@ -25,3 +25,9 @@
 <p align="right">
   <em>Tengo, Book 2, Chapter 4, <strong>IT MIGHT BE BETTER NOT TO WISH FOR SUCH A THING</strong></em>
 </p>
+
+> "People need things like that to go on living&mdash;mental landscapes that have meaning for them, even if they can't explain them in words. Part of why we live is to come up with explanations for these things. That's what I think."
+
+<p align="right">
+  <em>Tamaru, Book 2, Chapter 17, <strong>PULL THE RAT OUT</strong></em>
+</p>
