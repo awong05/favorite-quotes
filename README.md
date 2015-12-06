@@ -31,3 +31,9 @@
 <p align="right">
   <em>Tamaru, Book 2, Chapter 17, <strong>PULL THE RAT OUT</strong></em>
 </p>
+
+> "Wherever there's hope there's a trial."
+
+<p align="right">
+  <em>Aomame, Book 3, Chapter 2, <strong>ALONE, BUT NOT LONELY</strong></em>
+</p>
