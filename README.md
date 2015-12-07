@@ -32,8 +32,8 @@
   <em>Tamaru, Book 2, Chapter 17, <strong>PULL THE RAT OUT</strong></em>
 </p>
 
-> "Wherever there's hope there's a trial."
+> "This is what it means to live on. When granted hope, a person uses it as fuel, as a guidepost to life. It is impossible to live without hope."
 
 <p align="right">
-  <em>Aomame, Book 3, Chapter 2, <strong>ALONE, BUT NOT LONELY</strong></em>
+  <em>Aomame, Book 3, Chapter 5, <strong>NO MATTER HOW LONG YOU KEEP QUIET</strong></em>
 </p>
