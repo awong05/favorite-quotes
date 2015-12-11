@@ -42,5 +42,11 @@
 > "Like the distance that separates one person's heart from another's."
 
 <p align="right">
-  <em>Aomame/Tamaru, Book 3, Chapter 26, <strong>VERY ROMANTIC</strong></em>
+  <em>Aomame, Book 3, Chapter 26, <strong>VERY ROMANTIC</strong></em>
+</p>
+
+> "They had neither the power nor the knowledge to know what they should offer to each other, what they should be seeking. They had never, ever, been truly loved, or truly loved someone else. They had never held anyone, never been held. They had no idea, either, where this action would take them. What they entered then was a doorless room. They couldn't get out, nor could anyone else come in. The two of them didn't know it at the time, but this was the only truly complete place in the entire world. Totally isolated, yet the one place not tainted with loneliness."
+
+<p align="right">
+  <em>Tengo, Book 3, Chapter 27, <strong>THE WHOLE WORLD MAY NOT BE ENOUGH</strong></em>
 </p>
