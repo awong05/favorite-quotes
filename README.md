@@ -37,3 +37,10 @@
 <p align="right">
   <em>Aomame, Book 3, Chapter 5, <strong>NO MATTER HOW LONG YOU KEEP QUIET</strong></em>
 </p>
+
+> "It's a distance that can't be measured."
+> "Like the distance that separates one person's heart from another's."
+
+<p align="right">
+  <em>Aomame/Tamaru, Book 3, Chapter 26, <strong>VERY ROMANTIC</strong></em>
+</p>
